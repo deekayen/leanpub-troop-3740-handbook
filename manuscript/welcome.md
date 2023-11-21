@@ -18,5 +18,8 @@ It is my personal goal to utilize the methods of Scouting to enter into a partne
 
 Yours in Scouting,
 
-> *David Norman*
-> Scoutmaster
+{style=poem}
+~~~~~~
+*David Norman*
+Scoutmaster
+~~~~~~
