@@ -4,7 +4,7 @@ It is important to know that the Boy Scouts of America does not operate troops d
 
 Our chartered organization is The Church of the Good Shepherd; 3740 Holtzclaw Road, Cumming, Georgia 30041. The Catholic Church has been our chartered organization since our inception.
 
-The chartered organization appoints a chartered organization representative (COR) – a type of liaison – to serves as a member of the troop committee.
+The chartered organization appoints a chartered organization representative (COR) - a type of liaison - to serves as a member of the troop committee.
 
 The troop committee is a group of adults that serve in making policy decisions and providing support for the troop. They do not run the troop, but are responsible for overall policy decisions, safekeeping of the finances, as well as selecting adult leaders such as the Scoutmaster (SM) and assistant Scoutmasters (ASM), of the troop. The committee is made up of at least a committee chairperson, advancement chairman, and treasurer and may also include such positions as secretary, fundraising program, and so forth.
 

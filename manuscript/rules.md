@@ -15,7 +15,8 @@ Because they are all in different developmental stages and all come from differe
 * Fixed blade knives or any knife with a blade longer than 3 ½” are not allowed. *Guide to Safe Scouting*.
 * Open toe shoes are not allowed. *Guide to Safe Scouting*.
 * Roughhousing between Scouts is discouraged. Roughhousing between a large Scout and a small Scout (in size as well as maturity), or more than one on one is totally prohibited. *A Scout is Kind*
-* No profanity at any troop meeting or activity – A Scout is Courteous, and Reverent. * No throwing anything – no rocks, pine cones, water – anything – *A Scout is Courteous and Kind*
+* No profanity at any troop meeting or activity – A Scout is Courteous, and Reverent.
+* No throwing anything – no rocks, pine cones, water – anything – *A Scout is Courteous and Kind*
 * "Stick etiquette" will be practiced at all times – if it goes into the fire it stays in the fire – it is used  to hit someone, you lose stick privileges. The Outdoor Code – *A Scout is Courteous*
 * Hazing, initiations and secret societies and clubs are prohibited – *A Scout is Courteous and Kind*.
 * Use of tobacco, alcohol and drugs is prohibited – *To Keep myself physically strong and mentally awake*.

@@ -2,7 +2,7 @@
 
 **Answer:** *It's a game with a purpose!*
 
-The Scouting movement began as a youth program founded in Great Britain by Lord Robert  Baden-Powell. Baden-Powell, among other things, was a British military officer who gained fame in the  Boer Wars of South Africa in the early 1900’s. He became known as a national hero for his performance during a Siege of Mafeking he maintained the post with only a few men until reinforcements could arrive.  The siege lasted 217 days from October 1899 to May 1990. He lost not a single life.
+The Scouting movement began as a youth program founded in Great Britain by Lord Robert Baden-Powell. Baden-Powell, among other things, was a British military officer who gained fame in the  Boer Wars of South Africa in the early 1900's. He became known as a national hero for his performance during a Siege of Mafeking he maintained the post with only a few men until reinforcements could arrive.  The siege lasted 217 days from October 1899 to May 1990. He lost not a single life.
 
 Baden-Powell (fondly known as, B.P.) wrote a military handbook on the methods of using indigenous  boys as military Scouts. This was a practice he had used to great success. When he returned to  England he was very surprised to find that some boys had obtained copies of his military manuals and  were playing a game where they pretended to be these military Scouts. He had noted the men that he once knew as boys and the fine citizens they had become. Thus he re-wrote his manual in a more  civilianized manner and titled it, "Scouting for Boys." The birth of his "Grand Experiment" took place in 1907. Using his own words to describe the movement, it is a "Game with a purpose."
 
