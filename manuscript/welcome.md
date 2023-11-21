@@ -17,5 +17,6 @@ Your parents and you should always feel free to call me or any of our assistant 
 It is my personal goal to utilize the methods of Scouting to enter into a partnership between you the Scout, your parents, and the chartered organization to accomplish the aims of Scouting.
 
 Yours in Scouting,
-*David Norman*
-Scoutmaster
+
+> *David Norman*
+> Scoutmaster
