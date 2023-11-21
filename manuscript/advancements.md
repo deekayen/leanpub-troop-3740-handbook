@@ -1,0 +1,11 @@
+# Advancements
+
+The Scout advancement program consists of progress awards from the Scout badge through Eagle Scout rank (and Palms). Qualifications for the rank of Scout, Tenderfoot, Second Class, and First Class will be met through the successful completion of rank requirements and/or merit badges at each level. The goal in Troop 3740 is for all new Scouts to make First Class within one year of joining. Note that merit badges are not required for advancement to these ranks, so the pursuit of merit badges is not encouraged.
+
+In Troop 3740 the SPL or ASPL may sign off another Scout's handbook. If any questions arise regarding certain requirements, an adult should be consulted before the requirement is signed-off. The purpose of advancement is to gain knowledge -- signing off requirements that are not completed only defeats this purpose.
+
+Star, Life, and Eagle Scout ranks are completed through the merit badge program and require a higher level of knowledge (ability to teach a skill), special projects, and leadership at each rank level. Troop 3740 expects Scouts at this level to be able to demonstrate learned skills to other Scouts. All of the requirements are detailed in the *Scouts BSA Handbook*. Upon joining the troop, if they don't already have one, each Scout should purchase a *Scouts BSA Handbook*. Advancement should be recorded by the Scout in his book as it is earned.
+
+The Scouts BSA program encourages young men to work for personal achievement. Scouts will advance and earn achievement at varying paces.
+
+The requirements set down for the scouts by the Scouting program are written explicitly. Some may seem too difficult for an 11 year old but probably aren't for a 14 year old. Avoid the temptation to give advancement away. A scout who has had to work hard for something will value his achievement far more than if an award has simply been "given" to him. He may fail many times before he succeeds. But when he does succeed, success becomes that much sweeter. If you have the opportunity to work with a scout on a badge or other advancement, **STICK TO THE REQUIREMENTS: no more, no less**. They will gain greater respect for you as a leader and for himself as an individual.
