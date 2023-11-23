@@ -8,6 +8,6 @@ We Scout in the summertime! We run a year-round program. Generally, we will have
 
 Preparations for all campouts begins in advance. Patrols will plan their patrol menu and grocery list during the troop meeting. Usually a Scout volunteers to be the grubmaster and goes shopping for the patrol. Monies for food are divided among the patrol members attending the event. Duty rosters are also completed in advance in order for the Scouts to be prepared. Adults are part of their own separate patrol from the Scouts. They will cook and perform similar duties to the Scouts patrols.
 
-We will attend at least one long term resident camp during the summer. We try to alternate attendance at camps to provide various experiences to our Scouts. We also attempt to provide opportunities for boys to  attend high adventure programs as well.
+We will attend at least one long term resident camp during the summer. We try to alternate attendance at camps to provide various experiences to our Scouts. We also attempt to provide opportunities for scouts to attend high adventure programs as well.
 
 In addition to the fun, we also do our duty to God and Country, and our duty to others. This means work, and service projects. Scouts are expected to attend not only the fun outings, but the work days and fundraisers as well.

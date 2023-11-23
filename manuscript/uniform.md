@@ -34,7 +34,7 @@ This may be difficult for scouts, especially in late middle school to early high
 
 A clean and well maintained Class A uniform, properly worn, **is a requirement for any Scout seeking a Scoutmaster conference, or appearing before a board of review**, or a public ceremony representing  the troop or BSA in general.
 
-You may purchase uniforms online at (scoutshop.org)[https://www.scoutshop.org/], but we recommend that you purchase them at a local Scout shop to ensure proper fit and so you can return them if necessary. We also sometimes have 'experienced' uniforms or seconds[^experienced].
+You may purchase uniforms online at [scoutshop.org](https://www.scoutshop.org/), but we recommend that you purchase them at a local Scout shop in Jefferson or Lawrenceville to ensure proper fit and so you can return them if necessary. We also sometimes have 'experienced' uniforms or seconds[^experienced].
 
 Every rank requires a scout to display "Scout spirit." One aspect of Scout spirit is wearing the uniform. Every scout in this troop has the ability to have a full uniform. Therefore, scouts choosing not to wear the full uniform are not meeting the rank requirements of "Scout spirit" and cannot attend a board of review and therefore will not advance in rank.
 

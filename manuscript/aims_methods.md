@@ -44,10 +44,19 @@ The Scout program encourages scouts to learn and practice leadership skills. Eve
 
 ## Uniform
 
-The uniform makes the Scout troop visible as a force for good and creates a positive youth  image in the community. Scouting is an action program, and wearing the uniform is an action that shows each Scout's commitment to the aims and purposes of Scouting. The uniform gives the Scout identity in a world brotherhood of youth who believe in the same ideals. The uniform is  practical attire for Scout activities and provides a way for Scouts to wear the badges that show what they have accomplished.
+The uniform makes the Scout troop visible as a force for good and creates a positive youth  image in the community. Scouting is an action program, and wearing the uniform is an action that shows each Scout's commitment to the aims and purposes of Scouting. The uniform gives the Scout identity in a world brotherhood of youth who believe in the same ideals. The uniform is practical attire for Scout activities and provides a way for Scouts to wear the badges that show what they have accomplished.
 
 ## Scout Oath
-On my honor I will do my best to do my duty to God and my country and to obey the Scout Law; to help other people at all times; to keep myself physically strong, mentally awake, and morally straight.
+
+{style=poem}
+~~~~~~
+On my honor I will do my best
+To do my duty to God and my country
+and to obey the Scout Law;
+to help other people at all times;
+to keep myself physically strong,
+mentally awake, and morally straight.
+~~~~~~
 
 ## Scout Law
 
@@ -68,11 +77,11 @@ A Scout is:
 
 ## Scout Motto
 
-Be Prepared
+The Scout motto is *Be Prepared*. A Scout prepares for whatever comes his way by learning all he can. He keeps himself strong, healthy, and ready to meet the challenges of life.
 
 ## Scout Slogan
 
-Do a Good Turn Daily
+The Scout slogan is *Do a Good Turn Daily*. Good Turns are helpful acts of kindness done quietly, without boasting, and without expecting a reward or pay. Doing at least one Good Turn every day is a normal part of a Scout's life.
 
 ## Outdoor Code
 
