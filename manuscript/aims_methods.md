@@ -63,16 +63,16 @@ mentally awake, and morally straight.
 A Scout is:
 
 * Trustworthy
-* Friendly
-* Obedient
-* Brave
 * Loyal
-* Courteous
-* Cheerful
-* Clean
 * Helpful
+* Friendly
+* Courteous
 * Kind
+* Obedient
+* Cheerful
 * Thrifty
+* Brave
+* Clean
 * Reverent
 
 ## Scout Motto
